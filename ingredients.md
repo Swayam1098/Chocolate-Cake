@@ -1,0 +1,1 @@
+Flour, Milk, Curd, Iceing Sugar, Oil, Choco powder, Baking soda, Baking powder, Salt
